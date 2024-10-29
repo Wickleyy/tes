@@ -1,0 +1,1 @@
+## Tidak perlu kata-kata, RRQ go to M6
